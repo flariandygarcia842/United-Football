@@ -209,3 +209,6 @@ United Football is offered as a full free version. All features are included, an
 ---
 
 Download United Football today and kick off your journey in the world of online soccer! Enjoy the excitement, competition, and camaraderie that comes with this thrilling game!
+
+---
+**Last updated:** 2026-09-15 16:25:37 UTC
